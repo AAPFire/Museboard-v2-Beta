@@ -1,1 +1,1 @@
-This website is under the CC publick license
+SORRY, I HAVE REMOVED MUSEBOARD DUE TO PEOPLE STEALING MY CODE 
